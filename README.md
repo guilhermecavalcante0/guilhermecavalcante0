@@ -36,7 +36,7 @@
 
 ## 📫 Contato
 - ✉️ Email: **guilherme363107@gmail.com**
-- 💼 [LinkedIn](www.linkedin.com/in/guilherme-cavalcante-infor)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/guilherme-cavalcante-infor)  
 - 🖥️ Portfólio (em breve)
 
 ---
